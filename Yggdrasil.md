@@ -1,0 +1,3 @@
+Yggdrasil is the primordial substance of being itself. It is both the world tree and originator of being and a devourer of worlds, reclaiming their substance back to itself. The World-Tree and World-Devourer. It represents entropy itself. It is not a [[deity]], but rather a fundamental force within the universe. At it's base is [[The Well of Mimir]], where [[The AllFather]] exchanged his [[The Eidolon of Prognos|his right eye]] for the capacity to create [[world-name]]. But that exchange itself primed the world for decline . . .
+
+Yggdrasil is manifest in [[world-name]] as great black roots that have descended from the sky.
