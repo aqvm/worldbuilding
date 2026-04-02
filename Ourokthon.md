@@ -1,0 +1,5 @@
+Ourokthon is a titanic, seemingly unending serpent that has emerged from the depths of the world after it was sundered by the roots of [[Yggdrasil]] in their attempts to reclaim it. He is the embodied form of the [[The Eidolons|the Eidolon of Cynosure]], the part of the logos that governs locality. He winds through the cracks, slithering forward before pulling back to embed his serrated scales into the walls of the ravines around him. He strains to literally hold the world together.
+
+Similarly to how [[Yggdrasil]] is an inversion of the concept of the world-tree, Ourokthon is an inversion of the trope "The Wyrm at the World's End", which is archetypally an apocalyptic figure, a la Jormungandr. But Ourokthon is the opposite, working to delay the reclamation of the world by [[Yggdrasil]].
+
+His name comes from Ouroboros, the self-consuming snake + Chthonic, of or relating to the underworld (taken less in the sense of afterlife here, and more literally as deep underground).
